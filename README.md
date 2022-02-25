@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ivysai
 - I’m interested in research and writing
 - I’m currently at ASU studying Graphic Information Technology
-- Mesa, Arizona
+- Focus area in Print and Design
 
 
 <!---

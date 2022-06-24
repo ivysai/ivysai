@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ivysai
-- I’m interested in research and writing
-- I’m currently at ASU studying Graphic Information Technology
+- I’m interested in research, writing, SEO, and teamwork 
+- Recent ASU Grad with a Bachelors in Graphic Information Technology #forksup
 - Focus area in Print and Design
 
 
